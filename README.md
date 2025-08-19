@@ -39,4 +39,4 @@ GreenGains will be available on the PlayStore after the Client Decides to upload
 For inquiries, collaborations, or support:<br>
 📧 Email: yakshdalwadi1002@gmail.com
 <br>
-🔗 LinkedIn: [Yakshraj]( )
+🔗 LinkedIn: [Yakshraj](https://www.linkedin.com/in/yakshraj-dalwadi-85a940248/)
